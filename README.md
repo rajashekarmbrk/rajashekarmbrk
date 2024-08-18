@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi i'm Rajashekar:
 "Your education is the key to unlocking your potential."
 
 
